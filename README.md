@@ -8,6 +8,5 @@ You can find me on [LinkedIn](https://www.linkedin.com/in/isavellatsoulias/) or 
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I do competitive Muay Thai
 
-[Full Portfolio](isavellatsoulias.com)
-
-[Newsletter](https://substack.com/@isavellatsoulias)
+Full Portfolio @ my [website](isavellatsoulias.com)
+Newsletter @ [Substack](https://substack.com/@isavellatsoulias)
