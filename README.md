@@ -9,4 +9,5 @@ You can find me on [LinkedIn](https://www.linkedin.com/in/isavellatsoulias/) or 
 - ⚡ Fun fact: I do competitive Muay Thai
 
 Full Portfolio @ my [website](isavellatsoulias.com)
+
 Newsletter @ [Substack](https://substack.com/@isavellatsoulias)
